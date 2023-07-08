@@ -1,1 +1,1 @@
-My first readme
+Nokwandaa Zondi
